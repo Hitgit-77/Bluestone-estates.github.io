@@ -1,1 +1,0 @@
-# Bluestone-estates.github.io
